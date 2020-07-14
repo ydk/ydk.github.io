@@ -1,3 +1,3 @@
 # Welcome!
 
-### Exporer & enjoy!
+### Explore & enjoy!
